@@ -1,0 +1,3 @@
+- Hi! Im wrocl4wian from Poland. 
+- Lerning a Yagpdb CC and JS
+- Have nice day bro!
